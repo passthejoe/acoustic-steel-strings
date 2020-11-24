@@ -15,3 +15,9 @@ It's was the $200 model that Guitar Center sells (or sold), the FG-403S (??). I 
 So the Yamaha is an "indoor" guitar that doesn't live in a car trunk. Since I've had the guitar, I also bought a smaller car with a hatchback and no "real" trunk anyway. Plus it's COVID quarantine, so it's not like I'm going to work or anything like that.
 
 The guitar shipped with whatever strings Yamaha puts on at the factory, which seemed to be phosphor bronze starting about .012 gauge for the high E.
+
+
+![Image of the Ernie Ball Earthwood Medium Light acoustic guitar string package, photo by Ernie Ball](ernie_ball_earthwood_medium_light_P02003.png)
+
+![Image of the Ernie Ball Earthwood Medium acoustic guitar string package, photo by Ernie Ball](ernie_ball_earthwood_medium_P02002.png)
+
