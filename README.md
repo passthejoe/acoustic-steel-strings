@@ -2,7 +2,7 @@
 Reviews of steel strings for acoustic guitars
 
 **By Steven Rosenberg**
-<br/>*steven@passthejoe.net*
+<br/><a href="mailto:guitar@passthejoe.net">*guitar@passthejoe.net*</a>
 
 Nov. 23, 2020
 
