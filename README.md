@@ -33,3 +33,9 @@ The new .012 set feels and plays better than the .013 set I replaced. I'll revis
 I'm "lightening" up the strings on all my guitars. I went from hard tension to normal on the classical, I am about to go from .011 to .010 on the Fender Lead I, and I have been using .013s roundwounds on the Gibson ES-175 (instead of flatwounds), and I might try the Ernie Ball Slinky set with a .012 high E and a plain 3rd string.
 
 For the Yamaha flattop, I am going to try a phosphor bronze .012 set next. I *should* like the more mellow sound of phosphor bronze vs. the brighter tone of 80/20 bronze, but it hasn't worked out that way. I love the sound of the 80/20 strings, and they make me want to spend more time with the guitar.
+
+Dec. 24, 2020
+
+**Update:** I've had the strings on the guitar about a month now. I think they've lost a bit of their original brightness, but I can still hear that piano-like bell tone. The playing I'm doing now is pretty quiet. I'm not hitting it like a folk strummer. The strings still sound good, and the low E, which is my "problem" string on this guitar, is still better than the previous .013 set. The .012 Earthwoods didn't solve all my low E problems, but it does sound better than the heavier set.
+
+I have been playing the guitar a bit every day, and I'll see how the strings sound in a couple of weeks maybe. Getting a month out of uncoated 80/20 bronze strings is pretty good, I think.
