@@ -12,7 +12,7 @@ I don't have a lot of experience with steel-string flattop guitars, or the strin
 
 It's was the $200 model that Guitar Center sells (or sold), the FG-403S. I bought it because I wanted a guitar I could throw in my trunk and not worry about. Although it is VERY solidly built and extremely well-finished (except for some excess glue on the bracing inside the box), I can't bring myself to treat it badly.
 
-So the Yamaha is an "indoor" guitar that doesn't live in a car trunk. Since I've had the guitar, I also bought a smaller car with a hatchback and no "real" trunk anyway. Plus it's COVID quarantine, so I'm going to work or anything like that.
+So the Yamaha is an "indoor" guitar that doesn't live in a car trunk. Since I've had the guitar, I also bought a smaller car with a hatchback and no "real" trunk anyway. Plus it's COVID quarantine, so I'm not going to work or anything like that.
 
 The guitar shipped with whatever strings Yamaha puts on at the factory, which seemed to be phosphor bronze starting about .012 gauge for the high E.
 
@@ -45,5 +45,7 @@ I have been playing the guitar a bit every day, and I'll see how the strings sou
 **Update:** The Earthwood bronze strings have lost a bit more of their brightness. I miss that bell-like tone, but the set is still well-balanced, and the intonation is excellent. The strings really stay in tune. Even though it's not my usual tone, I like the brightness, and I'm probably going to change the strings soon. Three months is a pretty good lifespan for strings. I could definitely keep them *much* longer.
 
 I am playing a little bit every day, and these strings have served me well. I have heard that 80/20 bronze doesn't last as long as phosphor bronze, but I got a lot of life out of these strings, plus I really enjoyed the feel, sound and consistency.
+
+As I mentioned above, I've played both the Medium (.013) and Medium Light (.012) sets, and this guitar seems more comfortable with the .012s, so I'll probably stick with that as I explore more strings.
 
 I have been playing Ernie Ball strings on my electric guitars as well, and I have been very impressed with the sound and quality. I haven't heard a lot of good things about Ernie Ball's classical strings, but they *are* inexpensive, and I have two sets waiting to go.
