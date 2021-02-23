@@ -34,8 +34,16 @@ I'm "lightening" up the strings on all my guitars. I went from hard tension to n
 
 For the Yamaha flattop, I am going to try a phosphor bronze .012 set next. I *should* like the more mellow sound of phosphor bronze vs. the brighter tone of 80/20 bronze, but it hasn't worked out that way. I love the sound of the 80/20 strings, and they make me want to spend more time with the guitar.
 
-Dec. 24, 2020
+## Dec. 24, 2020
 
 **Update:** I've had the strings on the guitar about a month now. I think they've lost a bit of their original brightness, but I can still hear that piano-like bell tone. The playing I'm doing now is pretty quiet. I'm not hitting it like a folk strummer. The strings still sound good, and the low E, which is my "problem" string on this guitar, is still better than the previous .013 set. The .012 Earthwoods didn't solve all my low E problems, but it does sound better than the heavier set.
 
 I have been playing the guitar a bit every day, and I'll see how the strings sound in a couple of weeks maybe. Getting a month out of uncoated 80/20 bronze strings is pretty good, I think.
+
+## Feb. 22, 2021
+
+**Update:** The Earthwood bronze strings have lost a bit more of their brightness. I miss that bell-like tone, but the set is still well-balanced, and the intonation is excellent. The strings really stay in tune. Even though it's not my usual tone, I like the brightness, and I'm probably going to change the strings soon. Three months is a pretty good lifespan for strings. I could definitely keep them *much* longer.
+
+I am playing a little bit every day, and these strings have served me well. I have heard that 80/20 bronze doesn't last as long as phosphor bronze, but I got a lot of life out of these strings, plus I really enjoyed the feel, sound and consistency.
+
+I have been playing Ernie Ball strings on my electric guitars as well, and I have been very impressed with the sound and quality. I haven't heard a lot of good things about Ernie Ball's classical strings, but they *are* inexpensive, and I have two sets waiting to go.
